@@ -1,1 +1,1 @@
-stranz44576@gmail.com
+ginetteszymansky@gmail.com
